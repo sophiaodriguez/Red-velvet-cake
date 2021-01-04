@@ -1,1 +1,11 @@
 # Red-velvet-cake
+My Recipe 
+Preheat the oven to 350 degrees F. Butter and cocoa powder three 6-inch cake pans. Add 1 cupcake paper to a pan. In a standing mixer fitted with a paddle attachment, cream the room temperature butter. Add in sugar and mix on medium until combined. Add eggs in one at a time and beat. Add vanilla extract.
+In a large bowl, sift the flour, salt and baking soda then whisk together and set aside.
+Sift the cocoa powder into the butter mixture and cream together. 
+Add red food coloring and vinegar to the buttermilk then whisk together.
+Add ½ of the dry and ½ of the wet to the butter mixture until combined. Add the red buttermilk mixture and beat. Pour the batter into the three prepared pans. Add any extra batter to a cupcake paper. This will be used for the crumble. Bake for about 30-35 minutes or until the centers are springy to the touch. Bake the crumble cupcake for about 15-20 minutes. When done, let them cool in their pans for about 5 minutes, then invert them out onto a wire rack. 
+ In a stand mixer fitted with a paddle attachment, cream the butter. Sift confectioners sugar into a large bowl. Add room temperature cream cheese to the creamed butter. Add vanilla and a pinch of salt. Beat together. Add the confectioners sugar in cups. Mix until combined. If you’re wanting a stronger buttercream, keep adding more sifted confectioners sugar until you reach a desired consistency. Transfer the buttercream to a piping bag and snip off the tip. 
+ In a stand mixer fitted with a paddle attachment, cream the room temperature butter until smooth. Sift in the confectioner’s sugar. Beat until you get to a desired consistency. Add the rose water. Make sure the buttercream is thick.
+  Pipe a thick layer of cream cheese frosting between each layer. Cover the cake in frosting.
+   Use a bench scraper and offset spatula to smooth out the cake. Transfer to the fridge to chill for about 10 minutes or until the frosting is a bit set. If you’re in a warm climate, let your cake chill for even longer!
